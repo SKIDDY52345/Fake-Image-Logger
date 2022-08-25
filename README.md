@@ -1,0 +1,1 @@
+If ur really using this to scam gtfo
